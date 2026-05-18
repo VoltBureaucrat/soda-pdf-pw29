@@ -1,4 +1,4 @@
-# 
+# exclusive Wave para PC addons é o melhor Wave para PC addons com emissao de faturas e acompanhamento de despesas. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
